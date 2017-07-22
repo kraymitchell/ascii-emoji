@@ -229,6 +229,25 @@ injured
 
 ƪ(ړײ)‎ƪ​​
 creeper
+
+( . )( . )
+boobs
+
+ʕノ•ᴥ•ʔノ ︵ ┻━┻
+Table Flip Bear
+
+┻━┻ ︵ヽ(`Д´)ﾉ︵ ┻━┻
+Double Table Flip
+
+╭∩╮(-_-)╭∩╮
+Fugg You
+
+(ง'̀-'́)ง
+Let's Fight
+
+(⌐■_■)
+Too Cool
+
 ```
 
 Note:
